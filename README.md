@@ -1,0 +1,2 @@
+# -VisualStudioCodeNFT
+NFT generator
